@@ -1,7 +1,7 @@
 /*
 wa.me/6282285357346
 github: https://github.com/sadxzyq
-Instagram: https://instagram.com/tulisan.ku.id
+Instagram: https://www.instagram.com/luffyxs44?igsh=YzljYTk1ODg3Zg==‎‏
 ini wm gw cok jan di hapus
 */
 
